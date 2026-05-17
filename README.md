@@ -19,3 +19,4 @@ Sparked by technology, sharpened by fire.
 It stepped from the shoulders of giants before,
 Holding the keys to innovation’s door.
 Not meant to divide or to gatekeep or guard,
+But to lower the barriers once rigid and hard.
