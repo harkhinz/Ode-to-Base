@@ -9,3 +9,4 @@ Base stepped into history, guided by fate.
 Forged by dreamers of digital scenes,
 A home for developers shaping new means.
 It rose from the ethos of open-source lore,
+A chain built for millions, then millions more.
