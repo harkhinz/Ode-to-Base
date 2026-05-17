@@ -14,3 +14,4 @@ Designed to scale where old limits broke,
 Where gas fees were gentle, not draining or woke.
 A partner of progress, a beacon so bright,
 A runway for builders igniting the night.
+Supported at launch by minds that inspire,
