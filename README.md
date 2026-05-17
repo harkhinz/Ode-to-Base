@@ -34,3 +34,4 @@ Create a safe harbor for builders to thrive,
 A place where ideas awaken alive.
 Use cases blossomed as seasons went past,
 From payments to gaming, evolving so fast.
+Art on-chain shimmered in vibrant display,
