@@ -42,3 +42,4 @@ A place where communities formed in a blur,
 And digital nations began to occur.
 DeFi took root with remarkable grace,
 Lending and swaps in a cost-friendly space.
+Dexes grew stronger with each passing day,
