@@ -46,3 +46,4 @@ Dexes grew stronger with each passing day,
 Letting traders explore in a smooth, seamless way.
 Identity layers took shape on the chain,
 Proof of humanity, proof without pain.
+Smart wallets began to empower the crowd,
