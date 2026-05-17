@@ -30,3 +30,4 @@ An L2 solution on Ethereum’s might,
 Scaling transactions with speed and with light.
 Its mission was simple: bring more to the chain,
 Make blockchain accessible, remove all the pain.
+Create a safe harbor for builders to thrive,
