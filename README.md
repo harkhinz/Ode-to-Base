@@ -43,3 +43,4 @@ And digital nations began to occur.
 DeFi took root with remarkable grace,
 Lending and swaps in a cost-friendly space.
 Dexes grew stronger with each passing day,
+Letting traders explore in a smooth, seamless way.
