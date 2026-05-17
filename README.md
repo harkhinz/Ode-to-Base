@@ -37,3 +37,4 @@ From payments to gaming, evolving so fast.
 Art on-chain shimmered in vibrant display,
 And social apps flourished in Web3’s ballet.
 On Base, creators found fertile new ground,
+Where contracts were coded and optimism crowned.
