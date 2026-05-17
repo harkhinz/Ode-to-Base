@@ -35,3 +35,4 @@ A place where ideas awaken alive.
 Use cases blossomed as seasons went past,
 From payments to gaming, evolving so fast.
 Art on-chain shimmered in vibrant display,
+And social apps flourished in Web3’s ballet.
