@@ -22,3 +22,4 @@ Not meant to divide or to gatekeep or guard,
 But to lower the barriers once rigid and hard.
 It whispered a promise to rethink the space,
 To build for the world at an unstoppable pace.
+A chain for the people, the bold and the brave,
