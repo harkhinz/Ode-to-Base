@@ -48,3 +48,4 @@ Identity layers took shape on the chain,
 Proof of humanity, proof without pain.
 Smart wallets began to empower the crowd,
 Letting newcomers onboard without being cowed.
+Far from the chaos of systems so old,
