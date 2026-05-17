@@ -5,3 +5,4 @@ A network was born under visionary skies.
 Crafted with purpose, efficient and fast,
 A chain for the future, unbound by the past.
 From the halls of builders who dared to create,
+Base stepped into history, guided by fate.
