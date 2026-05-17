@@ -7,3 +7,4 @@ A chain for the future, unbound by the past.
 From the halls of builders who dared to create,
 Base stepped into history, guided by fate.
 Forged by dreamers of digital scenes,
+A home for developers shaping new means.
