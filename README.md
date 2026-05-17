@@ -31,3 +31,4 @@ Scaling transactions with speed and with light.
 Its mission was simple: bring more to the chain,
 Make blockchain accessible, remove all the pain.
 Create a safe harbor for builders to thrive,
+A place where ideas awaken alive.
