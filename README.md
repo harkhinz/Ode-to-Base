@@ -12,3 +12,4 @@ It rose from the ethos of open-source lore,
 A chain built for millions, then millions more.
 Designed to scale where old limits broke,
 Where gas fees were gentle, not draining or woke.
+A partner of progress, a beacon so bright,
