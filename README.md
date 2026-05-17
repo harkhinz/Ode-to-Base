@@ -10,3 +10,4 @@ Forged by dreamers of digital scenes,
 A home for developers shaping new means.
 It rose from the ethos of open-source lore,
 A chain built for millions, then millions more.
+Designed to scale where old limits broke,
