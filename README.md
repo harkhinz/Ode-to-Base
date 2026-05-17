@@ -27,3 +27,4 @@ A place where new value and freedom behave.
 History remembers each radical spark,
 And Base carved its mark in the crypto landmark.
 An L2 solution on Ethereum’s might,
+Scaling transactions with speed and with light.
