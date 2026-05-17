@@ -25,3 +25,4 @@ To build for the world at an unstoppable pace.
 A chain for the people, the bold and the brave,
 A place where new value and freedom behave.
 History remembers each radical spark,
+And Base carved its mark in the crypto landmark.
