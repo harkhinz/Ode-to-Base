@@ -38,3 +38,4 @@ Art on-chain shimmered in vibrant display,
 And social apps flourished in Web3’s ballet.
 On Base, creators found fertile new ground,
 Where contracts were coded and optimism crowned.
+A place where communities formed in a blur,
